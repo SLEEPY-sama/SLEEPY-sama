@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game programming ,Designing ;
 - 🌱 I’m currently learning Unity ,C Programming ,Development ;
 - 💞️ I’m looking to collaborate on ...idk yet ;
-- 📫 How to reach me Discord - sleepyguy17
+- 📫 How to reach me Discord - sleepyguy17 ,Instagram -rohitwalunj2022
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: lazyness is mother of all inovations we should respect it
 
